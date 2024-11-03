@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @CoyFishStudios
+- 👀 I’m interested in ... Coding, Game Development, art and music
+- 🌱 I’m currently learning ... GameMaker Studio
+- 💞️ I’m looking to collaborate on ... Indie projects of any kind
+- 📫 How to reach me ... CoyFishStudios28@gmail.com
+- 😄 Pronouns: ... she/her
+- ⚡ Fun fact: ... im currenty working on my first large project!
